@@ -1,0 +1,1 @@
+# Strict-Intellectual-Property-License
